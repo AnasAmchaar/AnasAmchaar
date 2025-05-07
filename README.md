@@ -1,5 +1,5 @@
 # 💫 About Me:
-AI/ML Engineering Student<br>Curious about how we can make the world better using AI<br>My goal is to enjoy my journey as AI researcher while helping people<br>
+🎓 AI/ML Engineering Student<br>🧠 Curious about how we can make the world better using AI<br>🚀 My goal is to enjoy my journey as AI researcher while helping people<br>
 
 
 ## 🌐 Socials:
